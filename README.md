@@ -4,4 +4,4 @@ You can see my work at in the below link.....
 
 https://helpful-baklava-23c3f9.netlify.app
 
-Don't hesitate to accept it this is a very good clone....✌️✌️✌️
+Don't hesitate to accept if this is a very good clone....✌️✌️✌️
